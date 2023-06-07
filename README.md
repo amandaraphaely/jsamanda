@@ -1,6 +1,6 @@
 # AMANDA
 
-_hello guys! welcome to my profile !_ 
+_hello guys! welcome to my profile !_ 😽
 
 I'm studying the (https://alura.com) ⬇️
 
