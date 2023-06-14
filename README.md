@@ -1,14 +1,9 @@
+   #    ![image](https://github.com/amandaraphaely/jsamanda/assets/132686876/daf0fb20-44e6-4f05-9856-5cd6ea426a6d)
+   
+                             
+                             
+                                                 welcome to my profile
+   
 
-# Amanda
-
-_hello guys!_
-
-![image](https://github.com/amandaraphaely/jsamanda/assets/132686876/7fc7f0a2-88b4-4993-9def-0e63c3b321de)            
-
-
-
-_TO MY_ 
-
-
-I'm studying the (https://alura.com) ⬇️
+![image](https://github.com/amandaraphaely/jsamanda/assets/132686876/840d00ad-9bf4-41ff-9d6e-3a8943405cd4)
 
